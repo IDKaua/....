@@ -1,6 +1,1 @@
-# WebSite Private
-
-## Dedicado á um Amor
-
-## Edillan Kauã da Silva Oliveira
-## ILSV♥
+# SEM_ DESTINO!!
